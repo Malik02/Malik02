@@ -4,7 +4,7 @@
 
 **Cientista de Dados Pleno · ML & IA Aplicada**
 
-5 anos entre engenharia, ML e negócio — do pipeline ao insight.
+5 anos entre engenharia, ML e negócio do pipeline ao insight.
 
 [Aberto a oportunidades](https://www.linkedin.com/in/abdul-malik-de-barros-a51b71190/) · São Paulo, SP
 
